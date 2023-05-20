@@ -1,0 +1,2 @@
+# SUICIDIO
+me mata
